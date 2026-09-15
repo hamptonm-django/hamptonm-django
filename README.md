@@ -12,5 +12,5 @@ Here are some ideas to get you started:
 - 💬 Ask me about voting in Pennsylvania.  It could be a lot better.
 - 📫 How to reach me: ...
 - 😄 Pronouns: she/her
-- ⚡ Fun fact: I'm owned by two Springer Spaniels and one snarky cat
+- ⚡ Fun fact: I'm a servant to two Springer Spaniels and one snarky cat.
 
